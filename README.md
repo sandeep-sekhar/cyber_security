@@ -1,1 +1,1 @@
-### Cyber security projects fot phising data
+### Cyber security projects for phising data
